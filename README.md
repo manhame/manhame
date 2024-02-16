@@ -19,6 +19,18 @@ Alors savoir coder, c'est comprendre comment mieux maîtriser les premiers pour 
 Surtout quand on peut l'allier à une longue expérience "corporate" dans des domaines aussi stratégiques
 que l'analyse financière, l'accompagnement à la gestion, au développement et à l'innovation en entreprise😉
 
+### Quels types de projet je souhaiterais intégrer ?👯
+
+Tout d'abord un projet qui me ressemble et qui me permette de délivrer tout mon potentiel
+pour un bénéfice équitablement partagé !
+Explorer S’investir Innover Veiller Optimiser Partager Impliquer Pivoter Persévérer me définissent bien;
+alors si ça vous parle
+nous pourrons sûrement faire un bout de chemin ensemble
+et contribuer en toute humilité
+à défricher les sentiers prometteurs
+du SEO à la Blockchain en passant par l'IA !
+
+
 <!--
 **manhame/manhame** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
